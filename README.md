@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Ahmed Ismail  
+# 👋 Hi, I'm Ameer Malkawi  
 ### Software Developer | AI Enthusiast | Educator  
 
 📍 Ottawa, Canada  
